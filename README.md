@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on--not interested
 - 📫 How to reach me It's not possible for now, but in the future I will add an e-mail here specifically dedicated to thinking about cooperation with others
-- 😄 Pronouns: Kamil, Ciastek131, Ciastek_131, Ciastek 131, yes, I don't have any others, everyone calls me cookies
+- 😄 Pronouns: Kamil, Ciastek/cookie
 - ⚡ Fun fact: I have a YT channel: https://youtube.com/@ciastek_131?si=DrlO-ZitKsyVcMKj
 
 <!---
