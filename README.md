@@ -3,7 +3,7 @@
 - 👀 I’m interested in creating games
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on--not interested
-- 📫 How to reach me It's not possible for now, but in the future I will add an e-mail here specifically dedicated to thinking about cooperation with others
+- 📫 How to reach me: currently only via comments on GitHub or YouTube. A Discord server will be available in the future.
 - 😄 Pronouns: Kamil, Ciastek/cookie
 - ⚡ Fun fact: I have a YT channel: https://youtube.com/@ciastek_131?si=DrlO-ZitKsyVcMKj
 
